@@ -1,1 +1,1 @@
-# RUMA
+# RUMA "El Bicentenario de la Corte Suprema que conmemoramos tiene como lema: Legado con Valor, porque son los valores de independencia, justicia, honestidad, lo que transciende a la institución" resalto el presidente del Poder Judicial
